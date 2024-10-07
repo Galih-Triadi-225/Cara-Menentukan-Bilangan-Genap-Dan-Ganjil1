@@ -1,0 +1,1 @@
+# Cara-Menentukan-Bilangan-Genap-Dan-Ganjil1
